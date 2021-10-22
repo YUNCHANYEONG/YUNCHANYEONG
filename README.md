@@ -1,5 +1,4 @@
 Hi everyone~!
-I 
 
 I enjoy traveling🚀, exercising🏃 and drawing🎨.
                                                               
